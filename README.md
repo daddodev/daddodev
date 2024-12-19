@@ -1,0 +1,5 @@
+- 👋 __Hi, I’m__ @daddodev
+- 👀 __I’m interested in__ programming, tech in general, meditation and probably too many things
+- 🌱 __I’m currently learning__ probably too many things
+- 💞️ __I’m looking to collaborate on__ probably too many things
+- 📫 __How to reach me__ daddodev@gmail.com
